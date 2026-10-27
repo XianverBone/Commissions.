@@ -27,6 +27,12 @@
 
 ***
 
+[?] Do you need to use credits?
+
+. not necessarily, you can add creds if you want (that would be nice though lol). even if you don't, just dont claim them as your own work ^^
+
+***
+
 [!?] What are the fee's !?
 
 . My service doesn't require any payment whatsoever, though supporter would be delightful lol
