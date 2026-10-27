@@ -1,6 +1,6 @@
 # Commissions !!
 
-[?] Basically an intro the services i do on ponytown.
+[?] Basically an intro for the services i do on ponytown.
 
 ***
 
