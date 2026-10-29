@@ -19,6 +19,16 @@
 
 ***
 
+[?] when/how will you receive it ?
+
+. Once i am finished, i will dm you
+
+. for maps, you will mostlikely join my party and i will give you save map permissions
+
+. for skins, follow the google docs guide that i will be sending
+
+***
+
 [?] Where do you contact me ?
 
 . Preferably contact me via my linked DC, request first before sending details.
